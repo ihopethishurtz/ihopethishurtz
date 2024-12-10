@@ -25,6 +25,8 @@ CHECK PRNS PAGE FOR MORE!!
 
 CHECK OUT MY CARRD BYI!!! x3
 
+SIGN MY ATA PRETTY PRETTY PRETTTTYYYY PLEEEASSSEEEEEE :3
+
 
 ![49da1455](https://github.com/user-attachments/assets/5bf79693-2931-4521-89ce-678417fa61c8)![ce5411b0](https://github.com/user-attachments/assets/e60107cd-3006-49f2-8458-59fde2a70a5f)![0171-jerma](https://github.com/user-attachments/assets/e3ac1641-c50c-4111-a086-4f31a095796a)![0125-blood](https://github.com/user-attachments/assets/4516e848-f254-4629-8ac2-c4450305bc77)![0046-leo](https://github.com/user-attachments/assets/e27fdf10-3cb9-4f02-9f08-324efea39af7)![blinkiesCafe-ms](https://github.com/user-attachments/assets/198f4737-d321-4499-9285-a16eac58d1ab)![blinkiesCafe-yc](https://github.com/user-attachments/assets/8731bf5b-843b-44c9-bc01-b5e23c001fa1)![blinkiesCafe-nB](https://github.com/user-attachments/assets/68da52b3-e7ba-4e44-a212-bee5a5c4f426)![blinkie-blinkies](https://github.com/user-attachments/assets/478eed8f-b575-4940-97ed-93170cc4ba30)![blinkie-blinkies](https://github.com/user-attachments/assets/94e38396-fc03-4991-9f69-2e57869e3297)![blinkies-blinkie](https://github.com/user-attachments/assets/13ed85f9-7a6c-4bf0-93d5-ecc2ad973702)![blinkies](https://github.com/user-attachments/assets/08a75b4a-0a12-4675-886f-7759bc1c6981)![alpha-male-blinkie](https://github.com/user-attachments/assets/ac39df86-2d2f-4fcf-8cfc-c634f2a4f0c6)![blinkie-scout-tf2](https://github.com/user-attachments/assets/9cfc58b1-9a13-4c36-b8e9-2cfc58725dc9)![blinkie-blinkies](https://github.com/user-attachments/assets/56ae8993-338c-4045-bf82-13efc68e0e16)
 
