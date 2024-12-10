@@ -9,7 +9,8 @@
  
 ![7rnyzq](https://github.com/user-attachments/assets/579a85a8-475b-43e7-81f9-07867cedf373)![21jvpk](https://github.com/user-attachments/assets/8717d1e2-63ad-46d3-ab63-b802801ae992)![ecsgm6](https://github.com/user-attachments/assets/ae7bd934-a3d0-446a-a5fb-2034f5eb934d)![8ax22n](https://github.com/user-attachments/assets/17238a78-1535-4933-aba8-109c639c5bc6)![1aqwqr](https://github.com/user-attachments/assets/662ccdcc-2b7f-4ce6-b6a2-ecb3c1ffbfa3)![d81j9pv-fea765e0-a402-405c-afe0-68d656b2f8e8](https://github.com/user-attachments/assets/13424bde-b050-40c3-aef7-617cf49a1c26)
 
-DAISUKE FICTIONKIN!!
+DAISUKE FICTIONKIN!! ![1a66u5](https://github.com/user-attachments/assets/3dcc3d22-1474-4c19-8c67-babea9b8e1d3)
+
 
 
 
