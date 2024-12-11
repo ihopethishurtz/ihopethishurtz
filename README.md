@@ -5,6 +5,9 @@
 
 ![27117626](https://github.com/user-attachments/assets/a1983fae-0385-4d1c-aced-25eaffe65b09)DAISUKE FICTIONKIN!! :3 (PLEAZE REFRAIN FROM DISCUSSING OR REFRENCING MY DEATH!!!)![27117626](https://github.com/user-attachments/assets/29bd4910-7faa-481c-868c-1e65b4b6bea3)
 
+![c40d39ea](https://github.com/user-attachments/assets/c5a028ef-adc5-48e7-812d-3b34c0ba7300) AGE REGRESSER!! PLEASE BE PATIENT WITH ME!! ![137bf10d](https://github.com/user-attachments/assets/68761f77-333e-4b3d-ba53-e45c7adad59d)
+
+
 
 ![1d17ba84](https://github.com/user-attachments/assets/abdee298-1057-4bdb-bfd2-7a1bc212da5e)FANDOMZ: MOUTHWASHING, MURDER DRONES, HOMESTUCK, RANFREN![78dde270](https://github.com/user-attachments/assets/6189679d-233c-4348-97b8-5a505af7719b)
 
@@ -13,8 +16,8 @@
 ![313d59c5](https://github.com/user-attachments/assets/ca7375f8-302c-43ee-a870-72d85f1be7b9)PRONOUNZ: THEY / IT / BRO / BLOOD![e29d5fce](https://github.com/user-attachments/assets/e6e5c776-36a5-4bd8-bbe8-a99b7742f34f)
 
 
+![cca859cc](https://github.com/user-attachments/assets/1b9a14f2-0965-45d3-b8f6-173702592cb7)CHECK PRNS PAGE FOR MORE!!![70b547cb (https://github.com/user-attachments/assets/82ea193e-fa8c-44fc-ac0d-e85aa1fe4954)
 
-CHECK PRNS PAGE FOR MORE!!
 
 
  
