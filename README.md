@@ -5,7 +5,8 @@
 
 ![27117626](https://github.com/user-attachments/assets/a1983fae-0385-4d1c-aced-25eaffe65b09)DAISUKE FICTIONKIN!! :3 (PLEAZE REFRAIN FROM DISCUSSING OR REFRENCING MY DEATH!!!)![27117626](https://github.com/user-attachments/assets/29bd4910-7faa-481c-868c-1e65b4b6bea3)
 
-![c40d39ea](https://github.com/user-attachments/assets/c5a028ef-adc5-48e7-812d-3b34c0ba7300) AGE REGRESSER!! PLEASE BE PATIENT WITH ME!! ![137bf10d](https://github.com/user-attachments/assets/68761f77-333e-4b3d-ba53-e45c7adad59d)
+![c40d39ea](https://github.com/user-attachments/assets/c5a028ef-adc5-48e7-812d-3b34c0ba7300) AGE REGRESSER!! PLEASE BE PATIENT WITH ME!!![89832d0e](https://github.com/user-attachments/assets/2db7c6aa-2caf-44fc-8601-3435320bb154)
+ 
 
 
 
