@@ -17,7 +17,8 @@
 ![313d59c5](https://github.com/user-attachments/assets/ca7375f8-302c-43ee-a870-72d85f1be7b9)PRONOUNZ: THEY / IT / BRO / BLOOD![e29d5fce](https://github.com/user-attachments/assets/e6e5c776-36a5-4bd8-bbe8-a99b7742f34f)
 
 
-![cca859cc](https://github.com/user-attachments/assets/1b9a14f2-0965-45d3-b8f6-173702592cb7)CHECK PRNS PAGE FOR MORE!! [70b547cb](https://github.com/user-attachments/assets/82ea193e-fa8c-44fc-ac0d-e85aa1fe4954)
+![cca859cc](https://github.com/user-attachments/assets/1b9a14f2-0965-45d3-b8f6-173702592cb7)CHECK PRNS PAGE FOR MORE!!![a1c49b5a](https://github.com/user-attachments/assets/9e5a8f33-52be-4988-9e3d-f8f0daca4a3f)
+
 
 
 
