@@ -10,7 +10,7 @@
 
 
 
-![1d17ba84](https://github.com/user-attachments/assets/abdee298-1057-4bdb-bfd2-7a1bc212da5e)FANDOMZ: MOUTHWASHING, MURDER DRONES, HOMESTUCK, RANFREN![78dde270](https://github.com/user-attachments/assets/6189679d-233c-4348-97b8-5a505af7719b)
+![1d17ba84](https://github.com/user-attachments/assets/abdee298-1057-4bdb-bfd2-7a1bc212da5e)FANDOMZ: MOUTHWASHING, MURDER DRONES, HOMESTUCK, RANFREN, BRBA/BCS![78dde270](https://github.com/user-attachments/assets/6189679d-233c-4348-97b8-5a505af7719b)
 
 
 
