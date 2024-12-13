@@ -8,6 +8,7 @@
 ![c40d39ea](https://github.com/user-attachments/assets/c5a028ef-adc5-48e7-812d-3b34c0ba7300) AGE REGRESSER!! PLEASE BE PATIENT WITH ME!! DNI AGE PLAYERS!! AGE REGRESSION IS SFW AND NON-KINKY!!!![89832d0e](https://github.com/user-attachments/assets/2db7c6aa-2caf-44fc-8601-3435320bb154)
  
 
+![f75ef59c](https://github.com/user-attachments/assets/1be0a953-55fa-4c71-b5f5-f4f6d17f2734)PLEASE CALL ME KID, KIDDO OR PUP PLEASE IT JUST MAKES ME VERY HAPPY /POS![ce3e3ac1](https://github.com/user-attachments/assets/270591c6-b77c-411d-b9f5-edc442bd38c1)
 
 
 ![1d17ba84](https://github.com/user-attachments/assets/abdee298-1057-4bdb-bfd2-7a1bc212da5e)FANDOMZ: MOUTHWASHING, MURDER DRONES, HOMESTUCK, RANFREN, BRBA/BCS![78dde270](https://github.com/user-attachments/assets/6189679d-233c-4348-97b8-5a505af7719b)
