@@ -39,6 +39,8 @@
 
 ![8288eac9](https://github.com/user-attachments/assets/c4bbbe65-740a-4450-9415-8980e4ef5d5e)CHECK OUT MY CARRD BYI!!! x3![8288eac9](https://github.com/user-attachments/assets/c17691fc-9511-4194-b795-aa34927be8c1)
 
+![5f19c904](https://github.com/user-attachments/assets/1fb4d258-c254-4647-88a9-65dcc5713981)IM VERY LONELY SO IM SORRY IF I GET VERY CLOSE!!!![ceb6cfd3](https://github.com/user-attachments/assets/9ddbe6a4-9b70-427f-8cf9-3872838daad8)
+
 
 
 ![6c50b726](https://github.com/user-attachments/assets/55572dc8-4927-481e-8c9a-00e943feaada)SIGN MY ATA PRETTY PRETTY PRETTTTYYYY PLEEEASSSEEEEEE :3![71018225](https://github.com/user-attachments/assets/c0f9e69d-5668-4964-b6c3-8b72c594d3f3)
