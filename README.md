@@ -1,9 +1,13 @@
- ![2cac36f2](https://github.com/user-attachments/assets/da6eecfe-ef49-49fe-858e-14a71c09e4b0)"Never was really good at anything. Such a slacker, she said"![c6772406](https://github.com/user-attachments/assets/bd0a7a4a-da57-4ade-9c1f-22995e6908ad)
+ ![2cac36f2](https://github.com/user-attachments/assets/da6eecfe-ef49-49fe-858e-14a71c09e4b0)**"Never was really good at anything. Such a slacker, she said"**![c6772406](https://github.com/user-attachments/assets/bd0a7a4a-da57-4ade-9c1f-22995e6908ad)
 
 
  ![dripping-blood-bloody](https://github.com/user-attachments/assets/6003e230-659a-442d-9838-2d19ed354593)![dripping-blood-bloody](https://github.com/user-attachments/assets/77c3bfd3-aa06-429c-ae9e-b418975b9e4e)![dripping-blood-bloody](https://github.com/user-attachments/assets/4d431c0a-3080-4ba3-acea-abe5236eb3a5)![dripping-blood-bloody](https://github.com/user-attachments/assets/174af693-4c80-4756-8960-10289651853d)![dripping-blood-bloody](https://github.com/user-attachments/assets/5a8c6aa4-c95e-4975-8969-b7fb590cdde2)![dripping-blood-bloody](https://github.com/user-attachments/assets/2559268f-b521-44f4-81f2-ae0c4030e14b)![dripping-blood-bloody](https://github.com/user-attachments/assets/f8890d4e-53a3-43a1-a835-eb4574d9d8e8)
 
 ![music-drums](https://github.com/user-attachments/assets/3bca4ca7-4859-480a-94e7-3a87d9b3e6cf)
+
+**"I'd rather die drunk, broke at 34, and have people talk about me than live to be rich and sober at 90 and have nobody remember who I was."**
+
+![dripping-blood-bloody](https://github.com/user-attachments/assets/6003e230-659a-442d-9838-2d19ed354593)![dripping-blood-bloody](https://github.com/user-attachments/assets/77c3bfd3-aa06-429c-ae9e-b418975b9e4e)![dripping-blood-bloody](https://github.com/user-attachments/assets/4d431c0a-3080-4ba3-acea-abe5236eb3a5)![dripping-blood-bloody](https://github.com/user-attachments/assets/174af693-4c80-4756-8960-10289651853d)![dripping-blood-bloody](https://github.com/user-attachments/assets/5a8c6aa4-c95e-4975-8969-b7fb590cdde2)![dripping-blood-bloody](https://github.com/user-attachments/assets/2559268f-b521-44f4-81f2-ae0c4030e14b)![dripping-blood-bloody](https://github.com/user-attachments/assets/f8890d4e-53a3-43a1-a835-eb4574d9d8e8)
 
 ![27117626](https://github.com/user-attachments/assets/a1983fae-0385-4d1c-aced-25eaffe65b09)DAISUKE FICTIONKIN!! :3 (PLEAZE REFRAIN FROM DISCUSSING OR REFRENCING MY DEATH!!!)![27117626](https://github.com/user-attachments/assets/29bd4910-7faa-481c-868c-1e65b4b6bea3)
 
