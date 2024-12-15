@@ -10,7 +10,7 @@
 
 
 
-![c4a53200](https://github.com/user-attachments/assets/833c38be-8ffa-4099-9620-c3745473730c)ANDREW NEIMAN KINNIE!! /SRS >_<  ![eb638353](https://github.com/user-attachments/assets/3720d0b9-a937-4192-9095-a0901724d93c)
+![c4a53200](https://github.com/user-attachments/assets/833c38be-8ffa-4099-9620-c3745473730c)ANDREW NEIMAN KINNIE!! /SRS >_< HES FROM THE MOVIE WHIPLASH NOT ZERO DAY!! ![eb638353](https://github.com/user-attachments/assets/3720d0b9-a937-4192-9095-a0901724d93c)
 
 
 ![dripping-blood-bloody](https://github.com/user-attachments/assets/6003e230-659a-442d-9838-2d19ed354593)![dripping-blood-bloody](https://github.com/user-attachments/assets/77c3bfd3-aa06-429c-ae9e-b418975b9e4e)![dripping-blood-bloody](https://github.com/user-attachments/assets/4d431c0a-3080-4ba3-acea-abe5236eb3a5)![dripping-blood-bloody](https://github.com/user-attachments/assets/174af693-4c80-4756-8960-10289651853d)![dripping-blood-bloody](https://github.com/user-attachments/assets/5a8c6aa4-c95e-4975-8969-b7fb590cdde2)![dripping-blood-bloody](https://github.com/user-attachments/assets/2559268f-b521-44f4-81f2-ae0c4030e14b)![dripping-blood-bloody](https://github.com/user-attachments/assets/f8890d4e-53a3-43a1-a835-eb4574d9d8e8)
