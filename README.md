@@ -5,11 +5,17 @@
 
 ![music-drums](https://github.com/user-attachments/assets/3bca4ca7-4859-480a-94e7-3a87d9b3e6cf)
 
-**"I'd rather die drunk, broke at 34, and have people talk about me than live to be rich and sober at 90 and have nobody remember who I was."**
+![902ddb74](https://github.com/user-attachments/assets/ab05f8f7-a5c9-4733-9195-9d91f71ec42c)
+**"I'd rather die drunk, broke at 34, and have people talk about me than live to be rich and sober at 90 and have nobody remember who I was."**![30854043](https://github.com/user-attachments/assets/53ebc938-f7e5-4a5b-a2ca-24bfdfba7782)
+
+
+
+![c4a53200](https://github.com/user-attachments/assets/833c38be-8ffa-4099-9620-c3745473730c)ANDREW NEIMAN KINNIE!! /SRS >_<  ![eb638353](https://github.com/user-attachments/assets/3720d0b9-a937-4192-9095-a0901724d93c)
+
 
 ![dripping-blood-bloody](https://github.com/user-attachments/assets/6003e230-659a-442d-9838-2d19ed354593)![dripping-blood-bloody](https://github.com/user-attachments/assets/77c3bfd3-aa06-429c-ae9e-b418975b9e4e)![dripping-blood-bloody](https://github.com/user-attachments/assets/4d431c0a-3080-4ba3-acea-abe5236eb3a5)![dripping-blood-bloody](https://github.com/user-attachments/assets/174af693-4c80-4756-8960-10289651853d)![dripping-blood-bloody](https://github.com/user-attachments/assets/5a8c6aa4-c95e-4975-8969-b7fb590cdde2)![dripping-blood-bloody](https://github.com/user-attachments/assets/2559268f-b521-44f4-81f2-ae0c4030e14b)![dripping-blood-bloody](https://github.com/user-attachments/assets/f8890d4e-53a3-43a1-a835-eb4574d9d8e8)
 
-![27117626](https://github.com/user-attachments/assets/a1983fae-0385-4d1c-aced-25eaffe65b09)DAISUKE FICTIONKIN!! :3 (PLEAZE REFRAIN FROM DISCUSSING OR REFRENCING MY DEATH!!!)![27117626](https://github.com/user-attachments/assets/29bd4910-7faa-481c-868c-1e65b4b6bea3)
+![27117626](https://github.com/user-attachments/assets/a1983fae-0385-4d1c-aced-25eaffe65b09)DAISUKE FICTIONKIN!! /SRS :3 (PLEAZE REFRAIN FROM DISCUSSING OR REFRENCING MY DEATH!!!)![27117626](https://github.com/user-attachments/assets/29bd4910-7faa-481c-868c-1e65b4b6bea3)
 
 ![c40d39ea](https://github.com/user-attachments/assets/c5a028ef-adc5-48e7-812d-3b34c0ba7300) AGE REGRESSER!! PLEASE BE PATIENT WITH ME!! DNI AGE PLAYERS!! AGE REGRESSION IS SFW AND NON-KINKY!!!![89832d0e](https://github.com/user-attachments/assets/2db7c6aa-2caf-44fc-8601-3435320bb154)
  
@@ -27,6 +33,8 @@
 ![cca859cc](https://github.com/user-attachments/assets/1b9a14f2-0965-45d3-b8f6-173702592cb7)CHECK PRNS PAGE FOR MORE!!![a1c49b5a](https://github.com/user-attachments/assets/9e5a8f33-52be-4988-9e3d-f8f0daca4a3f)
 
 
+
+![a55020a3](https://github.com/user-attachments/assets/5b81ccee-0831-424e-a176-50168d4f4c0d)![a55020a3](https://github.com/user-attachments/assets/553a213c-c6bb-402b-a6d4-ddb9c3d1a4b4)
 
 
  
