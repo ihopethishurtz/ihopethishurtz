@@ -3,6 +3,8 @@
 
  ![dripping-blood-bloody](https://github.com/user-attachments/assets/6003e230-659a-442d-9838-2d19ed354593)![dripping-blood-bloody](https://github.com/user-attachments/assets/77c3bfd3-aa06-429c-ae9e-b418975b9e4e)![dripping-blood-bloody](https://github.com/user-attachments/assets/4d431c0a-3080-4ba3-acea-abe5236eb3a5)![dripping-blood-bloody](https://github.com/user-attachments/assets/174af693-4c80-4756-8960-10289651853d)![dripping-blood-bloody](https://github.com/user-attachments/assets/5a8c6aa4-c95e-4975-8969-b7fb590cdde2)![dripping-blood-bloody](https://github.com/user-attachments/assets/2559268f-b521-44f4-81f2-ae0c4030e14b)![dripping-blood-bloody](https://github.com/user-attachments/assets/f8890d4e-53a3-43a1-a835-eb4574d9d8e8)
 
+![music-drums](https://github.com/user-attachments/assets/3bca4ca7-4859-480a-94e7-3a87d9b3e6cf)
+
 ![27117626](https://github.com/user-attachments/assets/a1983fae-0385-4d1c-aced-25eaffe65b09)DAISUKE FICTIONKIN!! :3 (PLEAZE REFRAIN FROM DISCUSSING OR REFRENCING MY DEATH!!!)![27117626](https://github.com/user-attachments/assets/29bd4910-7faa-481c-868c-1e65b4b6bea3)
 
 ![c40d39ea](https://github.com/user-attachments/assets/c5a028ef-adc5-48e7-812d-3b34c0ba7300) AGE REGRESSER!! PLEASE BE PATIENT WITH ME!! DNI AGE PLAYERS!! AGE REGRESSION IS SFW AND NON-KINKY!!!![89832d0e](https://github.com/user-attachments/assets/2db7c6aa-2caf-44fc-8601-3435320bb154)
