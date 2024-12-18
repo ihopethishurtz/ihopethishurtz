@@ -3,6 +3,10 @@
 
  ![dripping-blood-bloody](https://github.com/user-attachments/assets/6003e230-659a-442d-9838-2d19ed354593)![dripping-blood-bloody](https://github.com/user-attachments/assets/77c3bfd3-aa06-429c-ae9e-b418975b9e4e)![dripping-blood-bloody](https://github.com/user-attachments/assets/4d431c0a-3080-4ba3-acea-abe5236eb3a5)![dripping-blood-bloody](https://github.com/user-attachments/assets/174af693-4c80-4756-8960-10289651853d)![dripping-blood-bloody](https://github.com/user-attachments/assets/5a8c6aa4-c95e-4975-8969-b7fb590cdde2)![dripping-blood-bloody](https://github.com/user-attachments/assets/2559268f-b521-44f4-81f2-ae0c4030e14b)![dripping-blood-bloody](https://github.com/user-attachments/assets/f8890d4e-53a3-43a1-a835-eb4574d9d8e8)
 
+
+![ac5e79de](https://github.com/user-attachments/assets/ee7277a3-7f60-4f8f-90c4-5e75c35944cd) **"HEY FUCK OFF, JOHNNY UTAH! TURN MY PAGES, BITCH!"**![73b540cc](https://github.com/user-attachments/assets/d8c95b54-d3d0-4562-8ef1-fa7dc52116d2)
+
+
 ![music-drums](https://github.com/user-attachments/assets/3bca4ca7-4859-480a-94e7-3a87d9b3e6cf)
 
 ![902ddb74](https://github.com/user-attachments/assets/ab05f8f7-a5c9-4733-9195-9d91f71ec42c)
