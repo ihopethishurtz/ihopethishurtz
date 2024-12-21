@@ -19,6 +19,16 @@
 ![c4a53200](https://github.com/user-attachments/assets/833c38be-8ffa-4099-9620-c3745473730c)ANDREW NEIMAN KINNIE!! /SRS >_< HES FROM THE MOVIE WHIPLASH NOT ZERO DAY!! ![eb638353](https://github.com/user-attachments/assets/3720d0b9-a937-4192-9095-a0901724d93c)
 
 
+![a55020a3](https://github.com/user-attachments/assets/5b81ccee-0831-424e-a176-50168d4f4c0d)![a55020a3](https://github.com/user-attachments/assets/553a213c-c6bb-402b-a6d4-ddb9c3d1a4b4)
+
+![hannibal-hannigram](https://github.com/user-attachments/assets/4581ea7b-6423-4d7e-a712-c917cf76091f)![hannibal](https://github.com/user-attachments/assets/cf89cd97-b529-4f50-80a4-7b8240862c96)![hannibal-will-graham](https://github.com/user-attachments/assets/07fa52eb-35df-45b6-b88b-e9148b40fbfd) 
+
+![0ab5c9f0](https://github.com/user-attachments/assets/1b870137-421c-4d7f-90ab-d0fdb2ab238a) **"Achilles wished all Greeks would die, so that he and Patroclus could conquer Troy alone."**![313748ba](https://github.com/user-attachments/assets/1a885314-83ca-4fd7-8fcc-3d700b6b7f0c)
+
+
+
+
+
 ![dripping-blood-bloody](https://github.com/user-attachments/assets/6003e230-659a-442d-9838-2d19ed354593)![dripping-blood-bloody](https://github.com/user-attachments/assets/77c3bfd3-aa06-429c-ae9e-b418975b9e4e)![dripping-blood-bloody](https://github.com/user-attachments/assets/4d431c0a-3080-4ba3-acea-abe5236eb3a5)![dripping-blood-bloody](https://github.com/user-attachments/assets/174af693-4c80-4756-8960-10289651853d)![dripping-blood-bloody](https://github.com/user-attachments/assets/5a8c6aa4-c95e-4975-8969-b7fb590cdde2)![dripping-blood-bloody](https://github.com/user-attachments/assets/2559268f-b521-44f4-81f2-ae0c4030e14b)![dripping-blood-bloody](https://github.com/user-attachments/assets/f8890d4e-53a3-43a1-a835-eb4574d9d8e8)
 
 ![27117626](https://github.com/user-attachments/assets/a1983fae-0385-4d1c-aced-25eaffe65b09)DAISUKE FICTIONKIN!! /SRS :3 (PLEAZE REFRAIN FROM DISCUSSING OR REFRENCING MY DEATH!!!)![27117626](https://github.com/user-attachments/assets/29bd4910-7faa-481c-868c-1e65b4b6bea3)
@@ -29,7 +39,7 @@
 ![f75ef59c](https://github.com/user-attachments/assets/1be0a953-55fa-4c71-b5f5-f4f6d17f2734)PLEASE CALL ME KID, KIDDO OR PUP PLEASE IT JUST MAKES ME VERY HAPPY /POS![ce3e3ac1](https://github.com/user-attachments/assets/270591c6-b77c-411d-b9f5-edc442bd38c1)
 
 
-![1d17ba84](https://github.com/user-attachments/assets/abdee298-1057-4bdb-bfd2-7a1bc212da5e)FANDOMZ: MOUTHWASHING, MURDER DRONES, HOMESTUCK, RANFREN, BRBA/BCS![78dde270](https://github.com/user-attachments/assets/6189679d-233c-4348-97b8-5a505af7719b)
+![1d17ba84](https://github.com/user-attachments/assets/abdee298-1057-4bdb-bfd2-7a1bc212da5e)FANDOMZ: MOUTHWASHING, MURDER DRONES, HOMESTUCK, RANFREN, BRBA/BCS, HANNIBAL![78dde270](https://github.com/user-attachments/assets/6189679d-233c-4348-97b8-5a505af7719b)
 
 
 
@@ -44,7 +54,8 @@
 
 
  
-![7rnyzq](https://github.com/user-attachments/assets/579a85a8-475b-43e7-81f9-07867cedf373)![21jvpk](https://github.com/user-attachments/assets/8717d1e2-63ad-46d3-ab63-b802801ae992)![ecsgm6](https://github.com/user-attachments/assets/ae7bd934-a3d0-446a-a5fb-2034f5eb934d)![8ax22n](https://github.com/user-attachments/assets/17238a78-1535-4933-aba8-109c639c5bc6)![1aqwqr](https://github.com/user-attachments/assets/662ccdcc-2b7f-4ce6-b6a2-ecb3c1ffbfa3)![d81j9pv-fea765e0-a402-405c-afe0-68d656b2f8e8](https://github.com/user-attachments/assets/13424bde-b050-40c3-aef7-617cf49a1c26)![annoyed-tf2](https://github.com/user-attachments/assets/ef631e9f-b0c6-487e-a2df-a9395eb60ea6)![blinkies](https://github.com/user-attachments/assets/8724fde3-fd43-4542-8051-8b64ca1422f7)![blinkies](https://github.com/user-attachments/assets/44fece81-412e-474f-8f06-cd1277bd6d4a)![dfwacwl-385f6352-3781-4610-b9b1-89a1259bb8ca](https://github.com/user-attachments/assets/b7e52bf1-784d-425e-8c30-10ed9b3cfc44)![_stamp__anti_pro_shipper_by_iesbeans_delxvt1-fullview](https://github.com/user-attachments/assets/949fd46a-c485-43de-988e-61b55f65f5d2)![da42u4g-28a31600-c938-4949-b5ac-13f40826f3ef](https://github.com/user-attachments/assets/a0019555-c2d4-4a5e-96ff-3e21f5544a56)![d4l0hdh-af6acdf0-9654-4cd6-afe4-de71e711332c](https://github.com/user-attachments/assets/41637b50-8ac6-4155-b319-e3111976c74d)![gp4lgv](https://github.com/user-attachments/assets/a876be4a-f0ae-4c04-8d7f-e4b22303f092)
+![7rnyzq](https://github.com/user-attachments/assets/579a85a8-475b-43e7-81f9-07867cedf373)![21jvpk](https://github.com/user-attachments/assets/8717d1e2-63ad-46d3-ab63-b802801ae992)![ecsgm6](https://github.com/user-attachments/assets/ae7bd934-a3d0-446a-a5fb-2034f5eb934d)![8ax22n](https://github.com/user-attachments/assets/17238a78-1535-4933-aba8-109c639c5bc6)![1aqwqr](https://github.com/user-attachments/assets/662ccdcc-2b7f-4ce6-b6a2-ecb3c1ffbfa3)![d81j9pv-fea765e0-a402-405c-afe0-68d656b2f8e8](https://github.com/user-attachments/assets/13424bde-b050-40c3-aef7-617cf49a1c26)![annoyed-tf2](https://github.com/user-attachments/assets/ef631e9f-b0c6-487e-a2df-a9395eb60ea6)![blinkies](https://github.com/user-attachments/assets/8724fde3-fd43-4542-8051-8b64ca1422f7)![blinkies](https://github.com/user-attachments/assets/44fece81-412e-474f-8f06-cd1277bd6d4a)![dfwacwl-385f6352-3781-4610-b9b1-89a1259bb8ca](https://github.com/user-attachments/assets/b7e52bf1-784d-425e-8c30-10ed9b3cfc44)![_stamp__anti_pro_shipper_by_iesbeans_delxvt1-fullview](https://github.com/user-attachments/assets/949fd46a-c485-43de-988e-61b55f65f5d2)![d4l0hdh-af6acdf0-9654-4cd6-afe4-de71e711332c](https://github.com/user-attachments/assets/41637b50-8ac6-4155-b319-e3111976c74d)![gp4lgv](https://github.com/user-attachments/assets/a876be4a-f0ae-4c04-8d7f-e4b22303f092)![blinkies-hannigram](https://github.com/user-attachments/assets/dd2ce2f1-9d4b-44d8-9eb8-a8310735712e)
+
 
 
 
@@ -68,22 +79,6 @@
 
 
 ![49da1455](https://github.com/user-attachments/assets/5bf79693-2931-4521-89ce-678417fa61c8)![ce5411b0](https://github.com/user-attachments/assets/e60107cd-3006-49f2-8458-59fde2a70a5f)![0171-jerma](https://github.com/user-attachments/assets/e3ac1641-c50c-4111-a086-4f31a095796a)![0125-blood](https://github.com/user-attachments/assets/4516e848-f254-4629-8ac2-c4450305bc77)![0046-leo](https://github.com/user-attachments/assets/e27fdf10-3cb9-4f02-9f08-324efea39af7)![blinkiesCafe-ms](https://github.com/user-attachments/assets/198f4737-d321-4499-9285-a16eac58d1ab)![blinkiesCafe-yc](https://github.com/user-attachments/assets/8731bf5b-843b-44c9-bc01-b5e23c001fa1)![blinkiesCafe-nB](https://github.com/user-attachments/assets/68da52b3-e7ba-4e44-a212-bee5a5c4f426)![blinkie-blinkies](https://github.com/user-attachments/assets/478eed8f-b575-4940-97ed-93170cc4ba30)![blinkie-blinkies](https://github.com/user-attachments/assets/94e38396-fc03-4991-9f69-2e57869e3297)![blinkies-blinkie](https://github.com/user-attachments/assets/13ed85f9-7a6c-4bf0-93d5-ecc2ad973702)![blinkies](https://github.com/user-attachments/assets/08a75b4a-0a12-4675-886f-7759bc1c6981)![alpha-male-blinkie](https://github.com/user-attachments/assets/ac39df86-2d2f-4fcf-8cfc-c634f2a4f0c6)![blinkie-scout-tf2](https://github.com/user-attachments/assets/9cfc58b1-9a13-4c36-b8e9-2cfc58725dc9)![blinkie-blinkies](https://github.com/user-attachments/assets/56ae8993-338c-4045-bf82-13efc68e0e16)
-
-
-
-https://github.com/user-attachments/assets/9d4c607c-6187-423e-8561-b7450cf3b135
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 
