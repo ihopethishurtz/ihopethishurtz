@@ -27,6 +27,9 @@
 ![0ab5c9f0](https://github.com/user-attachments/assets/1b870137-421c-4d7f-90ab-d0fdb2ab238a) **"Achilles wished all Greeks would die, so that he and Patroclus could conquer Troy alone."**![313748ba](https://github.com/user-attachments/assets/1a885314-83ca-4fd7-8fcc-3d700b6b7f0c)
 
 
+![88488dee](https://github.com/user-attachments/assets/f4db41ca-97e2-4d2f-9eeb-cd0b8ac9c208) **"It's 7:16. I'm in Baltimore, Maryland. My name is Will Graham."** ![eb638353](https://github.com/user-attachments/assets/e04b2fc3-fcf0-461d-8ceb-693bbe36379e)
+
+
 
 
 
