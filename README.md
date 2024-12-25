@@ -22,7 +22,8 @@
 
 ![a55020a3](https://github.com/user-attachments/assets/5b81ccee-0831-424e-a176-50168d4f4c0d)![a55020a3](https://github.com/user-attachments/assets/553a213c-c6bb-402b-a6d4-ddb9c3d1a4b4)
 
-![hannibal-hannigram](https://github.com/user-attachments/assets/4581ea7b-6423-4d7e-a712-c917cf76091f)![hannibal](https://github.com/user-attachments/assets/cf89cd97-b529-4f50-80a4-7b8240862c96)![hannibal-will-graham](https://github.com/user-attachments/assets/07fa52eb-35df-45b6-b88b-e9148b40fbfd) 
+![hannibal-hannigram](https://github.com/user-attachments/assets/4581ea7b-6423-4d7e-a712-c917cf76091f)![hannibal](https://github.com/user-attachments/assets/cf89cd97-b529-4f50-80a4-7b8240862c96)![hannibal-will-graham](https://github.com/user-attachments/assets/07fa52eb-35df-45b6-b88b-e9148b40fbfd) ![hannibal-hug](https://github.com/user-attachments/assets/1ba9af27-119a-42c3-aeb2-10cc5bc5bcc8)
+
 
 ![0ab5c9f0](https://github.com/user-attachments/assets/1b870137-421c-4d7f-90ab-d0fdb2ab238a) **"Achilles wished all Greeks would die, so that he and Patroclus could conquer Troy alone."**![313748ba](https://github.com/user-attachments/assets/1a885314-83ca-4fd7-8fcc-3d700b6b7f0c)
 
